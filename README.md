@@ -1,7 +1,6 @@
 # estudio1
-mis loquitos de senati OHHHHHH RIKOLASSSSSSS !!
-Todo el mundo preparado
-··· Maybe something_
+Ella es fanatica de lo sensual.
+
 # Requisitos: 
 - Java 18
 - Intellij
